@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **DS and ML projects**
 
-- 👨‍💻 All of my projects are available at [https://muntazirjahangir.my.canva.site](https://muntazirjahangir.my.canva.site)
+- 👨‍💻 My portfolio [https://muntazirjahangir.my.canva.site](https://muntazirjahangir.my.canva.site)
 
 - 💬 All other links [https://linktr.ee/muntazir9934](https://linktr.ee/muntazir9934)
 
